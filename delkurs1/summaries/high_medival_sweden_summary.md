@@ -183,39 +183,40 @@ To speak of a "Swedish identity" during the Middle Ages requires careful qualifi
 However, during the High and Late Middle Ages, a sense of collective identity linked to the realm of Sweden (regnum Sueciae) did begin to form, primarily among the political elite—the high nobility, bishops, and royal officials. This "realm identity" was not based on a shared popular culture or language (as dialects were diverse) but was forged by the very process of state-building. It was constructed around a set of shared institutions and loyalties: being subjects of a shared king, being governed by a common law of the land (an idea that gained strength with the creation of the national law code around 1350), and belonging to a common faith organized within the Swedish church province.31 This elite identity was a product of the political consolidation of the kingdom.
 This nascent realm identity was then significantly sharpened, defined, and broadened by the historical experience of the Kalmar Union in the 15th century. The prolonged political and military struggle against what was perceived as foreign (specifically, Danish) domination provided a powerful, unifying narrative. The conflict created a clear "other"—the Danish-led Union monarchy—against which a Swedish "we" could be defined.31 The political rhetoric of the period, as seen in letters and chronicles, increasingly differentiated between "natives" and "foreigners," and framed the rebellions not as mere aristocratic power plays, but as a defense of the Swedish realm, its ancient laws, and its freedoms against foreign tyranny. This process of resistance actively forged a collective political identity among the Swedish elite, an identity that was fundamentally oppositional.31
 In conclusion, while a widespread, popular Swedish national identity in the modern sense did not exist in the Middle Ages, the period was crucial for laying its foundations. A political and cultural identity tied to the Swedish realm emerged among the elite as a direct consequence of the state-building process. This identity, initially based on shared institutions, was then powerfully reinforced and given a sharper definition through the long conflict with the Kalmar Union. This elite "realm identity" provided the essential ideological groundwork upon which a broader, more popular Swedish nationalism would be constructed in the centuries to follow.
-Works cited
-Christianization of Scandinavia - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Christianization_of_Scandinavia
-Runestones and the Conversion of Sweden - ResearchGate, accessed October 19, 2025, https://www.researchgate.net/publication/265110338_Runestones_and_the_Conversion_of_Sweden
-Medieval Christianity in the North: Early Ecclesiastical Organization of Scandinavia, Especially Sweden - Brepols Online, accessed October 19, 2025, https://www.brepolsonline.net/doi/pdf/10.1484/M.AS-EB.1.100810?download=true
-Revising Swedish Christianisation: History Mediation in Research and School, 1915–1996 - DiVA portal, accessed October 19, 2025, https://www.diva-portal.org/smash/get/diva2:1721155/FULLTEXT01.pdf
-From Pagan Chieftains to Christian Kings: Shaping Medieval Nordic Political Culture - Chapman University Digital Commons, accessed October 19, 2025, https://digitalcommons.chapman.edu/cgi/viewcontent.cgi?article=1182&context=vocesnovae
-Rulers | ASNC Viking Age, accessed October 19, 2025, https://www.asncvikingage.com/rulers
-Chapter 5 Sweden: Between East and West in - Brill, accessed October 19, 2025, https://brill.com/display/book/9789004543492/BP000005.xml
-The Kingdom(s) of Sweden - ASNC Viking Age, accessed October 19, 2025, https://www.asncvikingage.com/sweden
-The Eriksgata in Medieval Sweden c.800–1300: A Political Ritual, a Legal Necessity, or an Identity - Informit, accessed October 19, 2025, https://search.informit.org/doi/pdf/10.3316/informit.027341848053221
-Brink, Stefan. 1996. Political and Social Structures in Early Scandinavia: A Settlement-historical Pre-study of the Central Plac - DiVA portal, accessed October 19, 2025, https://www.diva-portal.org/smash/get/diva2:1158120/FULLTEXT01.pdf
-Early state formation in Scandinavia, accessed October 19, 2025, https://austriaca.at/0xc1aa5576_0x0023f695.pdf
-kvinnorna_runt_birger_jarl.txt
-The Rise and Fall of Imperial Sweden - The Cross Section, accessed October 19, 2025, https://crosssection.gns.wisc.edu/2015/11/18/the-rise-and-fall-of-imperial-sweden-by-ben-pflughoeft/
-Social order in the Viking Age - National Museum of Denmark, accessed October 19, 2025, https://en.natmus.dk/historical-knowledge/denmark/prehistoric-period-until-1050-ad/the-viking-age/power-and-aristocracy/social-order-in-the-viking-age/
-Viking Social Structure - Living in a Norse World - ThoughtCo, accessed October 19, 2025, https://www.thoughtco.com/viking-social-structure-living-norse-world-173146
-Exploring the social class system of Vikings - Fjord Tours, accessed October 19, 2025, https://www.fjordtours.com/en/norway/people-and-culture/viking/vikings-history-social-structure
-Swedish Society - TOTA.world, accessed October 19, 2025, https://www.tota.world/article/1055/
-Sweden - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Sweden
-Shifting Regimes: Representation, administrative reform and institutional change in early modern Sweden, accessed October 19, 2025, https://www.su.se/polopoly_fs/1.589148.1640015990!/menu/standard/file/Shifting%20Regimes.pdf
-Medieval Swedish Provincial Laws as Example of Resilience? Pihlajamäki, Heikki - University of Helsinki Research Portal, accessed October 19, 2025, https://researchportal.helsinki.fi/files/159510516/ResiliencePihlajam_ki.pdf
-The Swedish Medieval Law Codes - Brill, accessed October 19, 2025, https://brill.com/display/book/9789004271623/B9789004271623_003.pdf
-Ellen A. Ahlness: The Legacy of the Ting: Viking Justice, Egalitarianism, and Modern Scandinavian Regional Governance - World History Connected, accessed October 19, 2025, https://worldhistoryconnected.press.uillinois.edu/17.1/forum_ahlness.html
-Danish and Swedish provincial laws from the 13th century in a comparative perspective - Stockholm University, accessed October 19, 2025, https://www.su.se/english/research/research-projects/danish-and-swedish-provincial-laws-from-the-13th-century-in-a-comparative-perspective
-PART V HISTORICAL ORIENTATION, accessed October 19, 2025, https://www.abdn.ac.uk/staffpages/uploads/his237/Nafziger2-Comparative_law_and_anthropology_13-Chapter13.pdf
-State Building and Capitalism: The Rise of the Swedish Bureaucracy - Tidsskrift.dk, accessed October 19, 2025, https://tidsskrift.dk/scandinavian_political_studies/article/download/32935/31319?inline=1
-History of Sweden - The 18th century | Britannica, accessed October 19, 2025, https://www.britannica.com/topic/history-of-Sweden/The-18th-century
-Kalmar Union | Research Starters - EBSCO, accessed October 19, 2025, https://www.ebsco.com/research-starters/history/kalmar-union
-Kalmar Union | Map, History, & Facts | Britannica, accessed October 19, 2025, https://www.britannica.com/place/Kalmar-Union
-Kalmar Union - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Kalmar_Union
-The history of the Nordic Region, accessed October 19, 2025, https://www.norden.org/en/information/history-nordic-region
-Swedes and Others – Identity Formation in Medieval Sweden - ResearchGate, accessed October 19, 2025, https://www.researchgate.net/publication/324525004_Swedes_and_Others_-_Identity_Formation_in_Medieval_Sweden
-2018 • EARLY MEDIEVAL SCANDINAVIA: NEW TRENDS IN RESEARCH - DiVA portal, accessed October 19, 2025, http://www.diva-portal.org/smash/get/diva2:1327308/FULLTEXT01.pdf
-Scandinavian Towns in the Middle Ages: An Introduction | Cairn.info, accessed October 19, 2025, https://shs.cairn.info/revue-revue-d-histoire-nordique-2013-1-page-23?lang=en
-Historical State Formation within and beyond Europe - Lisa Blaydes, accessed October 19, 2025, https://blaydes.people.stanford.edu/sites/g/files/sbiybj24621/files/media/file/state.pdf
+
+# Works cited
+1. Christianization of Scandinavia - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Christianization_of_Scandinavia
+1. Runestones and the Conversion of Sweden - ResearchGate, accessed October 19, 2025, https://www.researchgate.net/publication/265110338_Runestones_and_the_Conversion_of_Sweden
+1. Medieval Christianity in the North: Early Ecclesiastical Organization of Scandinavia, Especially Sweden - Brepols Online, accessed October 19, 2025, https://www.brepolsonline.net/doi/pdf/10.1484/M.AS-EB.1.100810?download=true
+1. Revising Swedish Christianisation: History Mediation in Research and School, 1915–1996 - DiVA portal, accessed October 19, 2025, https://www.diva-portal.org/smash/get/diva2:1721155/FULLTEXT01.pdf
+1. From Pagan Chieftains to Christian Kings: Shaping Medieval Nordic Political Culture - Chapman University Digital Commons, accessed October 19, 2025, https://digitalcommons.chapman.edu/cgi/viewcontent.cgi?article=1182&context=vocesnovae
+1. Rulers | ASNC Viking Age, accessed October 19, 2025, https://www.asncvikingage.com/rulers
+1. Chapter 5 Sweden: Between East and West in - Brill, accessed October 19, 2025, https://brill.com/display/book/9789004543492/BP000005.xml
+1. The Kingdom(s) of Sweden - ASNC Viking Age, accessed October 19, 2025, https://www.asncvikingage.com/sweden
+1. The Eriksgata in Medieval Sweden c.800–1300: A Political Ritual, a Legal Necessity, or an Identity - Informit, accessed October 19, 2025, https://search.informit.org/doi/pdf/10.3316/informit.027341848053221
+1. Brink, Stefan. 1996. Political and Social Structures in Early Scandinavia: A Settlement-historical Pre-study of the Central Plac - DiVA portal, accessed October 19, 2025, https://www.diva-portal.org/smash/get/diva2:1158120/FULLTEXT01.pdf
+1. Early state formation in Scandinavia, accessed October 19, 2025, https://austriaca.at/0xc1aa5576_0x0023f695.pdf
+1. kvinnorna_runt_birger_jarl.txt
+1. The Rise and Fall of Imperial Sweden - The Cross Section, accessed October 19, 2025, https://crosssection.gns.wisc.edu/2015/11/18/the-rise-and-fall-of-imperial-sweden-by-ben-pflughoeft/
+1. Social order in the Viking Age - National Museum of Denmark, accessed October 19, 2025, https://en.natmus.dk/historical-knowledge/denmark/prehistoric-period-until-1050-ad/the-viking-age/power-and-aristocracy/social-order-in-the-viking-age/
+1. Viking Social Structure - Living in a Norse World - ThoughtCo, accessed October 19, 2025, https://www.thoughtco.com/viking-social-structure-living-norse-world-173146
+1. Exploring the social class system of Vikings - Fjord Tours, accessed October 19, 2025, https://www.fjordtours.com/en/norway/people-and-culture/viking/vikings-history-social-structure
+1. Swedish Society - TOTA.world, accessed October 19, 2025, https://www.tota.world/article/1055/
+1. Sweden - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Sweden
+1. Shifting Regimes: Representation, administrative reform and institutional change in early modern Sweden, accessed October 19, 2025, https://www.su.se/polopoly_fs/1.589148.1640015990!/menu/standard/file/Shifting%20Regimes.pdf
+1. Medieval Swedish Provincial Laws as Example of Resilience? Pihlajamäki, Heikki - University of Helsinki Research Portal, accessed October 19, 2025, https://researchportal.helsinki.fi/files/159510516/ResiliencePihlajam_ki.pdf
+1. The Swedish Medieval Law Codes - Brill, accessed October 19, 2025, https://brill.com/display/book/9789004271623/B9789004271623_003.pdf
+1. Ellen A. Ahlness: The Legacy of the Ting: Viking Justice, Egalitarianism, and Modern Scandinavian Regional Governance - World History Connected, accessed October 19, 2025, https://worldhistoryconnected.press.uillinois.edu/17.1/forum_ahlness.html
+1. Danish and Swedish provincial laws from the 13th century in a comparative perspective - Stockholm University, accessed October 19, 2025, https://www.su.se/english/research/research-projects/danish-and-swedish-provincial-laws-from-the-13th-century-in-a-comparative-perspective
+1. PART V HISTORICAL ORIENTATION, accessed October 19, 2025, https://www.abdn.ac.uk/staffpages/uploads/his237/Nafziger2-Comparative_law_and_anthropology_13-Chapter13.pdf
+1. State Building and Capitalism: The Rise of the Swedish Bureaucracy - Tidsskrift.dk, accessed October 19, 2025, https://tidsskrift.dk/scandinavian_political_studies/article/download/32935/31319?inline=1
+1. History of Sweden - The 18th century | Britannica, accessed October 19, 2025, https://www.britannica.com/topic/history-of-Sweden/The-18th-century
+1. Kalmar Union | Research Starters - EBSCO, accessed October 19, 2025, https://www.ebsco.com/research-starters/history/kalmar-union
+1. Kalmar Union | Map, History, & Facts | Britannica, accessed October 19, 2025, https://www.britannica.com/place/Kalmar-Union
+1. Kalmar Union - Wikipedia, accessed October 19, 2025, https://en.wikipedia.org/wiki/Kalmar_Union
+1. The history of the Nordic Region, accessed October 19, 2025, https://www.norden.org/en/information/history-nordic-region
+1. Swedes and Others – Identity Formation in Medieval Sweden - ResearchGate, accessed October 19, 2025, https://www.researchgate.net/publication/324525004_Swedes_and_Others_-_Identity_Formation_in_Medieval_Sweden
+1. 2018 • EARLY MEDIEVAL SCANDINAVIA: NEW TRENDS IN RESEARCH - DiVA portal, accessed October 19, 2025, http://www.diva-portal.org/smash/get/diva2:1327308/FULLTEXT01.pdf
+1. Scandinavian Towns in the Middle Ages: An Introduction | Cairn.info, accessed October 19, 2025, https://shs.cairn.info/revue-revue-d-histoire-nordique-2013-1-page-23?lang=en
+1. Historical State Formation within and beyond Europe - Lisa Blaydes, accessed October 19, 2025, https://blaydes.people.stanford.edu/sites/g/files/sbiybj24621/files/media/file/state.pdf
 
